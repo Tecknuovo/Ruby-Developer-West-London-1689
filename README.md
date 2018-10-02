@@ -32,7 +32,7 @@ Please email oliver.short@tecknuovo.com if you’d like to talk through the abov
 £60,000 to £75,000
 
 **Do they offer remote/flexible working?**
-One day a week based from home other wise be there for the stand up at 10:00
+One day a week based from home otherwise be there for the stand up at 10:00
 
 **Will you be required to travel?** 
 No
